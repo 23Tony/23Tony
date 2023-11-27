@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @23Tony
 - 👀 I’m interested in listening to music.
-- 🌱 I’m currently learning English.
